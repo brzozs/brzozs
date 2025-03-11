@@ -1,4 +1,4 @@
-## Hi there 👋
+Hi I am a student at RPI currently studing for computer systems engineering.
 
 <!--
 **brzozs/brzozs** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
