@@ -13,8 +13,8 @@ But thats not all that I do:
 
 *   [My Portfolio Website](https://brzozs.github.io/Portfolio) - Come check out my projects and experience!
 *   [Steam](https://steamcommunity.com/id/brzozs/) - Add me on Steam and let's game!
-*   Discord: sebo6716 - Feel free to connect!
-*   [Linked In] (linkedin.com/in/sebastian-brzozowski-848069358) - If you would like to reach out in a more professional setting feel free to use my Linked In.
+*   [Discord](https://discordapp.com/users/sebo6716) - Feel free to connect on here!
+*   [Linked In](linkedin.com/in/sebastian-brzozowski-848069358) - If you would like to reach out in a more professional setting feel free to use my Linked In.
 
 ### Fun Facts
 
